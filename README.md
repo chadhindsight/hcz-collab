@@ -17,4 +17,4 @@ Also this vid is really kool: [krazy kool video](https://www.youtube.com/watch?v
 
 **shuaeib's topic**
 
-I wanna play basketball (https://www.youtube.com/watch?v=NHhTMh0nURA) RIGHT NOW
+[I wanna play basketball] (https://www.youtube.com/watch?v=NHhTMh0nURA) RIGHT NOW
