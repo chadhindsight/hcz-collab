@@ -11,4 +11,4 @@ I want to play [Expedition 33](https://www.youtube.com/watch?v=o9KQ4rlymEQ)  whe
 |I become rich | I become broke |
 |I become happy | I become sad |
 
-Also this vid is really kool: [https://www.youtube.com/watch?v=1V_xRb0x9aw](https://www.youtube.com/watch?v=1V_xRb0x9aw)
+Also this vid is really kool: [krazy kool video](https://www.youtube.com/watch?v=1V_xRb0x9aw)
