@@ -12,3 +12,9 @@ I want to play [Expedition 33](https://www.youtube.com/watch?v=o9KQ4rlymEQ)  whe
 |I become happy | I become sad |
 
 Also this vid is really kool: [krazy kool video](https://www.youtube.com/watch?v=1V_xRb0x9aw)
+
+
+
+**shuaeib's topic**
+
+I wanna play basketball (https://www.youtube.com/watch?v=NHhTMh0nURA) RIGHT NOW
